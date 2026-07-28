@@ -12,4 +12,4 @@ making nonstop sexual jokes, copy pasting borderline pornographic and barely byp
   </a>
 </p>
 <p align=center>
-<sub><sup>Satire, obviously.</sup></sub>
+<sub><sup>Satire, obviously. Read my strawpage.</sup></sub>
