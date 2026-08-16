@@ -1,5 +1,5 @@
 <p align="center">
-<sub><a href="https://timaeustestified.atabook.org/">ATA</a> $\color{#F57C31}{✧}$ <a href="https://egodeath.straw.page/">STRAWPAGE</a> $\color{#F57C31}{✧}$ <a href="https://spacehey.com/gemgd">SPACEHEY </a>
+<sub><a href="https://timaeustestified.atabook.org/">ATA</a> $\color{#F57C31}{✧}$ <a href="https://egodeath.straw.page/">STRAWPAGE</a> $\color{#F57C31}{✧}$ <a href="https://spacehey.com/gemgd">SPACEHEY</a> $\color{#F57C31}{✧}$ <a href="https://pluralkit.xyz/s/wihop">SYS</a>
 <p align="center"></sub>
 
 <p align="center">
