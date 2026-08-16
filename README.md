@@ -1,10 +1,6 @@
 <p align="center">
-Hi, I'm your average pony dot town player, and my hobbies include:
- oversharing way too much,
- making all my skin names "(Blank) kisser",
-making nonstop sexual jokes, copy pasting borderline pornographic and barely bypassed comments over and over in public chat,
- and sitting afk all day and never interacting with anyone
-<p align="center">
+<sub><a href="https://timaeustestified.atabook.org/">ATA</a> $\color{#F57C31}{✧}$ <a href="https://egodeath.straw.page/">STRAWPAGE</a> $\color{#F57C31}{✧}$ <a href="https://spacehey.com/gemgd">SPACEHEY </a>
+<p align="center"></sub>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=nor4qejv0xbq3xsbj8qjne32w&redirect=true">
@@ -12,4 +8,4 @@ making nonstop sexual jokes, copy pasting borderline pornographic and barely byp
   </a>
 </p>
 <p align=center>
-<sub><sup>Satire, obviously. Read my strawpage.</sup></sub>
+$\color{#F57C31}{✧}$
